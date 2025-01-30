@@ -3,6 +3,4 @@
 
 **Sejam Bem vindo!** 
 
-![Carneirinho](https://github.com/user-attachments/assets/a95de1eb-a241-43d4-932a-3b20dd2e4299)
-
-
+![Carneirinho](https://github.com/user-attachments/assets/c0b21861-0133-459f-a88c-06e3362a17c5)
