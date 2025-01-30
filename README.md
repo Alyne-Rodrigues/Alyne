@@ -3,4 +3,4 @@
 
 **Sejam Bem vindo!** 
 
-![Carneirinho](https://github.com/user-attachments/assets/c0b21861-0133-459f-a88c-06e3362a17c5)
+![pengu ~! (1)](https://github.com/user-attachments/assets/8102154d-fdd4-49ac-a6a2-90ac03602285)
